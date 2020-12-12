@@ -1,0 +1,1 @@
+# W3c-web-template-Architects-model
